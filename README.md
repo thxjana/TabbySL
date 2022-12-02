@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate with other creators on this field
 - 📫 Reach me on Instagram - @tabby.sl
 - 🔥 Reach me on TikTok    - @tabby.sl
-- 😐 Email Me on           - imthebestincoding@gmail.com
+- 😐 Email Me on           - ssshakaboom@gmail.com
 
 (Dont be offended by my email though 😅)
 
