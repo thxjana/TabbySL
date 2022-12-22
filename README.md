@@ -6,7 +6,6 @@
 - 🔥 Reach me on TikTok    - @tabby.sl
 - 😐 Email Me on           - ssshakaboom@gmail.com
 
-(Dont be offended by my email though 😅)
 
 THAT'S IT ☺️
 <!---
