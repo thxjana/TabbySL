@@ -1,14 +1,12 @@
-- 👋 Hi, I’m @TabbySL
-- 👀 I’m interested in Tech
-- 🌱 I’m currently learning Python, Batch, etc.
-- 💞️ I’m looking to collaborate with other creators on this field
-- 📫 Reach me on Instagram - @tabby.sl
-- 🔥 Reach me on TikTok    - @tabby.sl
-- 😐 Email Me on           - ssshakaboom@gmail.com
+
+🤨**Discord**     - [Tabby#3395](https://discordapp.com/users/976078813173776384/) <br>
+🙄**StackOverflow** - [tabby-sl](https://stackoverflow.com/users/19921214/tabby-sl/) <br>
+😉**Reddit**    - [tabby_sl](https://www.reddit.com/user/tabby_sl/)<br>
+😶**Telegram**   - [thejana_r](https://t.me/thejana_r/)<br>
+😄**Spotify**  - [Tabby](https://open.spotify.com/user/317o63k2nl5x2b5a6c47vyou4m7u)<br>
 
 
-THAT'S IT ☺️
+
 <!---
-TabbySL/TabbySL is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
+heyoooooooooooo niggas
 --->
